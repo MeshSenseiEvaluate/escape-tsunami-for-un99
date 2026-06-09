@@ -1,4 +1,4 @@
-# 
+# Experience escape tsunami for brainrots like never before with secure escape tsunami for brainrots Script, the #1 Script. Includes teleport and
 
 
 
